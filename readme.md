@@ -1,0 +1,2 @@
+CHOCO LAVA CAKE WITHOUT EGG, WITHOUT OVEN
+One of the most searched for recipes is the Choco lava cake. It is super easy to make and is a kids' favourite any time! Molten Chocolate Cake or Chocolate Lava Cake brings together a chocolate cake and soufflé and is also a beautiful combination of textures, a crumbly exterior with a soft chocolate centre.
